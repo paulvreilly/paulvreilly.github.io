@@ -3,7 +3,7 @@
 ## Misc
 - [Solo Stove Shield (for Bonfire size stove)](https://www.solostove.com/en-us/p/shield?sku=SSBON-SHIELD&queryID=0cbbe66af0ae8607fd9778b7d10d19a7)
   
-## Morse Code tools (from cwmorse.us)
+## Morse code tools (from cwmorse.us)
  - [Orange Lightweight Double Paddle Morse Code Key (with steel base)](https://cwmorse.us/products/orange-lightweight-double-paddle-morse-code-key?variant=42399680430339)
 - [Mini Yack Pro Morse Code Keyer](https://cwmorse.us/products/mini-yack-pro-morse-code-keyer)
 - [3.5mm Aux Cable 3'](https://cwmorse.us/products/3-5mm-aux-cable)
