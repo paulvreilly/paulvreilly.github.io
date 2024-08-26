@@ -1,6 +1,5 @@
 # Paul's Wishlist
 ## Misc
-- [Redman Tobacco Tin Sign (from eBay)](https://www.ebay.com/itm/364023693973)
 - [Solo Stove Shield (for Bonfire size stove)](https://www.solostove.com/en-us/p/shield?sku=SSBON-SHIELD&queryID=0cbbe66af0ae8607fd9778b7d10d19a7)
   
 ## Morse Code tools (from cwmorse.us)
@@ -14,4 +13,6 @@
 - [Forty Reasons I Am a Catholic by Peter Kreeft](https://www.amazon.com/dp/1622826140/?coliid=I3OWTN94VP7R7&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Gransfors Bruks small splitting axe](https://www.amazon.com/Gransfors-Bruks-Small-Splitting-Axe/dp/B000WIROVI)
 - [The Jaws Log by Carl Gottlieb](https://www.amazon.com/dp/0062229281/?coliid=I1JNDSM3OVREI4&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- 
+
+## If you're desperate for a gift idea
+- [Redman Tobacco Tin Sign (from eBay)](https://www.ebay.com/itm/364023693973)
