@@ -6,6 +6,7 @@ Instead of using Amazon for my wishlist, here are some ideas.  Some of it is ava
 
 ### Last Updated
 08/27/2024
+---
 
 ## Misc
 - [Solo Stove Shield (for Bonfire size stove)](https://www.solostove.com/en-us/p/shield?sku=SSBON-SHIELD&queryID=0cbbe66af0ae8607fd9778b7d10d19a7)
