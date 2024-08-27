@@ -9,8 +9,8 @@ Instead of using Amazon for my wishlist, here are some ideas.  Some of it is ava
 ---
 
 ## Misc
-- [Solo Stove Shield (for Bonfire size stove)](https://www.solostove.com/en-us/p/shield?sku=SSBON-SHIELD&queryID=0cbbe66af0ae8607fd9778b7d10d19a7)
-It's expensive but if you have no other ideas then this is good.
+- [Solo Stove Shield (for Bonfire size stove)](https://www.solostove.com/en-us/p/shield?sku=SSBON-SHIELD&queryID=0cbbe66af0ae8607fd9778b7d10d19a7) It's expensive but if you have no other ideas then this is good.
+
   
 ## Morse code tools (from cwmorse.us)
 I'd like to get into this with Matt and Jim:
@@ -20,15 +20,16 @@ I'd like to get into this with Matt and Jim:
 
 ## Amazon
 - [Amazon Gift Card (any amount)](https://www.amazon.com/dp/B0BXD2TYS8/?coliid=I3923IRR3RZRL0&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Abandonment to Divine Providence Leather Bound by Jean-Pierre de Caussade S.J.](https://www.amazon.com/dp/0819808768/?coliid=I3GFBRHMU13BUE&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Forty Reasons I Am a Catholic by Peter Kreeft](https://www.amazon.com/dp/1622826140/?coliid=I3OWTN94VP7R7&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Gransfors Bruks small splitting axe](https://www.amazon.com/Gransfors-Bruks-Small-Splitting-Axe/dp/B000WIROVI)
-- [The Jaws Log by Carl Gottlieb](https://www.amazon.com/dp/0062229281/?coliid=I1JNDSM3OVREI4&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 
 ## Stupid Stuff
+More stuff that has no use and only get it if you have absolutely no idea what to get for me.
 - [Redman Tobacco Tin Sign (from eBay)](https://www.ebay.com/itm/364023693973)
 
 ## Books
+- [Forty Reasons I Am a Catholic by Peter Kreeft](https://www.amazon.com/dp/1622826140/?coliid=I3OWTN94VP7R7&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Abandonment to Divine Providence Leather Bound by Jean-Pierre de Caussade S.J.](https://www.amazon.com/dp/0819808768/?coliid=I3GFBRHMU13BUE&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [The Jaws Log by Carl Gottlieb](https://www.amazon.com/dp/0062229281/?coliid=I1JNDSM3OVREI4&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Abroad in Japan - by Chris Broad](https://www.amazon.com/dp/1787637077/?coliid=IW1S6XL4QR392&colid=7KWEL2GMFDU1&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Old Time Hawkey's Recipes from the Cedar Swamp](https://www.amazon.com/dp/0744093902/?coliid=I23YUGWT91CB25&colid=7KWEL2GMFDU1&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 
