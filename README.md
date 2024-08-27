@@ -18,7 +18,7 @@ I'd like to get into this with Matt and Jim:
 
 ## Amazon
 - [Amazon Gift Card (any amount)](https://www.amazon.com/dp/B0BXD2TYS8/?coliid=I3923IRR3RZRL0&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Gransfors Bruks small splitting axe](https://www.amazon.com/Gransfors-Bruks-Small-Splitting-Axe/dp/B000WIROVI)
+- [Gransfors Bruks small splitting axe](https://www.amazon.com/Gransfors-Bruks-Small-Splitting-Axe/dp/B000WIROVI) - I know this is really expensive and I'm not really asking for it so much as keeping it here for later on when I have some extra cash and feel like buying myself a gift.
 
 ## Stupid Stuff
 More stuff that has no use and only get it if you have absolutely no idea what to get for me.
