@@ -1,7 +1,5 @@
 # Paul's Wishlist
-Instead of using Amazon for my wishlist, here are some ideas.  Some of it is available on Amazon and some of it isn't.  
-The ***Last Updated*** date below is accurate but it doesn't mean someone hasn't bought something from the list below 
-since then.  So if that's your concern, ask around.  But I don't mind handling any returns of course.
+Instead of using Amazon for my wishlist, here are some ideas.  Some of it is available on Amazon and some of it isn't.  The ***Last Updated*** date below is accurate but it doesn't mean someone hasn't bought something from the list below since then.  So if that's your concern, ask around.  But I don't mind handling any returns of course.
 ---
 
 ### Last Updated
