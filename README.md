@@ -8,6 +8,7 @@ Instead of using Amazon for my wishlist, here are some ideas.  Some of it is ava
 
 ## Misc
 - [Solo Stove Shield (for Bonfire size stove)](https://www.solostove.com/en-us/p/shield?sku=SSBON-SHIELD&queryID=0cbbe66af0ae8607fd9778b7d10d19a7) It's expensive but if you have no other ideas then this is good.
+- Drawing pads.  Top spiral bound are nice and I usually like something around 8 1/1 x 11 but it doesn't really matter.
 
   
 ## Morse code tools (from cwmorse.us)
