@@ -31,7 +31,7 @@ More stuff that has no use and only get it if you have absolutely no idea what t
 - [Redman Tobacco Tin Sign (from eBay)](https://www.ebay.com/itm/364023693973)
 
 ## Books
-- [Deliverance Prayers: For Use by the Laity (Faux Leather Edition)]([https://www.amazon.com/dp/1622826140/?coliid=I3OWTN94VP7R7&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it](https://sentradpress.com/product/deliverance-prayers-for-use-by-the-laity/))
+- [Deliverance Prayers: For Use by the Laity (Faux Leather Edition please, I already have the paperback and want a sturdier version)](https://sentradpress.com/product/deliverance-prayers-for-use-by-the-laity/)
 - [Forty Reasons I Am a Catholic by Peter Kreeft](https://www.amazon.com/dp/1622826140/?coliid=I3OWTN94VP7R7&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Abandonment to Divine Providence Leather Bound by Jean-Pierre de Caussade S.J.](https://www.amazon.com/dp/0819808768/?coliid=I3GFBRHMU13BUE&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [The Jaws Log by Carl Gottlieb](https://www.amazon.com/dp/0062229281/?coliid=I1JNDSM3OVREI4&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
