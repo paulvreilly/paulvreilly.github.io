@@ -3,7 +3,7 @@
 Instead of using Amazon for my wishlist, here are some ideas.  Some of it is available on Amazon and some of it isn't.  The ***Last Updated*** date below is accurate but it doesn't mean someone hasn't bought something from the list below since then.  So if that's your concern, ask around.  But I don't mind handling any returns of course.
 
 ## Last Updated
-09/23/2024
+10/07/2024
 
 
 ## Misc
@@ -11,9 +11,6 @@ Instead of using Amazon for my wishlist, here are some ideas.  Some of it is ava
 
 ## Art Stuff
 - Drawing pads.  Top spiral bound are nice and I usually like something around 8 1/1 x 11 but it doesn't really matter.
-#### Art Books
-- [Out of the Lost Woods volume 1](https://www.etsy.com/listing/1097997621/out-of-the-lost-woods-a-fan-made-zelda?click_key=3458e492190703ba1aa7c6ea8dbd11b0fc25dc52%3A1097997621&click_sum=b24a506f&ref=shop_home_feat_2)
-- [Out of the Lost Woods volume 2](https://www.etsy.com/listing/1772087963/out-of-the-lost-woods-vol2-a-fan-made?click_key=b6e3323af9aad9738b4a70a4a49f92e44e1547cb%3A1772087963&click_sum=5ad9cd95&ref=shop_home_feat_1)
 
   
 ## Morse code tools (from cwmorse.us)
@@ -24,7 +21,6 @@ I'd like to get into this with Matt and Jim:
 
 ## Amazon
 - [Amazon Gift Card (any amount)](https://www.amazon.com/dp/B0BXD2TYS8/?coliid=I3923IRR3RZRL0&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Gransfors Bruks small splitting axe](https://www.amazon.com/Gransfors-Bruks-Small-Splitting-Axe/dp/B000WIROVI) - I know this is really expensive and I'm not really asking for it so much as keeping it here for later on when I have some extra cash and feel like buying myself a gift.
 
 ## Stupid Stuff
 More stuff that has no use and only get it if you have absolutely no idea what to get for me.
@@ -32,8 +28,8 @@ More stuff that has no use and only get it if you have absolutely no idea what t
 
 ## Books
 - [Deliverance Prayers: For Use by the Laity (Faux Leather Edition please, I already have the paperback and want a sturdier version)](https://sentradpress.com/product/deliverance-prayers-for-use-by-the-laity/)
-- [Forty Reasons I Am a Catholic by Peter Kreeft](https://www.amazon.com/dp/1622826140/?coliid=I3OWTN94VP7R7&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Abandonment to Divine Providence Leather Bound by Jean-Pierre de Caussade S.J.](https://www.amazon.com/dp/0819808768/?coliid=I3GFBRHMU13BUE&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [The Silmarillion by J.R.R. Tolkien](https://www.amazon.com/Silmarillion-Illustrated-J-R-R-Tolkien/dp/0063280779/ref=pd_bxgy_thbs_d_sccl_2/144-5891597-9148706?psc=1)
 - [The Jaws Log by Carl Gottlieb](https://www.amazon.com/dp/0062229281/?coliid=I1JNDSM3OVREI4&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Abroad in Japan - by Chris Broad](https://www.amazon.com/dp/1787637077/?coliid=IW1S6XL4QR392&colid=7KWEL2GMFDU1&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Old Time Hawkey's Recipes from the Cedar Swamp](https://www.amazon.com/dp/0744093902/?coliid=I23YUGWT91CB25&colid=7KWEL2GMFDU1&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
@@ -46,6 +42,6 @@ More stuff that has no use and only get it if you have absolutely no idea what t
 - [Olbas Oil](https://www.amazon.com/dp/B07YQ1XM6J/?coliid=I1TYHZFUR8SBD4&colid=273JPDPIP3B2M&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Nasol Nasal Spray](https://www.amazon.com/dp/B07CTCLHJJ/?coliid=I2IJ9SBNQCTQ0L&colid=273JPDPIP3B2M&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [SAKURA Pigma Micron Fineliner Pens](https://www.amazon.com/dp/B0008G8G8Y/?coliid=IGSKNCVPZJCQH&colid=273JPDPIP3B2M&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [Sakura 50206 4-Piece Pigma Sensei Inking Set](https://www.amazon.com/dp/B00I5CYZB0/?coliid=I2DSSINDWNL3WW&colid=273JPDPIP3B2M&ref_=list_c_wl_lv_ov_lig_dp_it)
+- [Sakura Pigma Sensei Inking Set](https://www.amazon.com/dp/B001463RWW/?coliid=I2DSSINDWNL3WW&colid=273JPDPIP3B2M&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [My old man shoe insoles](https://www.amazon.com/dp/B01LCPQCYY/?coliid=I1O9LQ1CFL2RJG&colid=273JPDPIP3B2M&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
   
