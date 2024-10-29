@@ -34,6 +34,7 @@ More stuff that has no use and only get it if you have absolutely no idea what t
 - [Abroad in Japan - by Chris Broad](https://www.amazon.com/dp/1787637077/?coliid=IW1S6XL4QR392&colid=7KWEL2GMFDU1&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Old Time Hawkey's Recipes from the Cedar Swamp](https://www.amazon.com/dp/0744093902/?coliid=I23YUGWT91CB25&colid=7KWEL2GMFDU1&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [The Savage Tales of Solomon Kane - by Robert E. Howard](https://www.amazon.com/Savage-Tales-Solomon-Kane/dp/0345461509/ref=sr_1_1?s=books&sr=1-1)
+- [Amphigorey by Edward Gorey](https://www.amazon.com/Amphigorey-Fifteen-Books-Edward-Gorey/dp/0399504338/ref=sr_1_1?sr=8-1#customerReviews)
 
 ## Stocking stuffer/Small gift ideas
  If you have no other ideas and you're desperate for a small gift, these are good but they're not things I ***have*** to have.
