@@ -46,7 +46,6 @@ More stuff that has no use and only get it if you have absolutely no idea what t
 - [Olbas Inhaler](https://www.amazon.com/dp/B00014DMG4/?coliid=I2DJKAPUO9QMAS&colid=273JPDPIP3B2M&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Olbas Oil](https://www.amazon.com/dp/B07YQ1XM6J/?coliid=I1TYHZFUR8SBD4&colid=273JPDPIP3B2M&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Nasol Nasal Spray](https://www.amazon.com/dp/B07CTCLHJJ/?coliid=I2IJ9SBNQCTQ0L&colid=273JPDPIP3B2M&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
-- [SAKURA Pigma Micron Fineliner Pens](https://www.amazon.com/dp/B0008G8G8Y/?coliid=IGSKNCVPZJCQH&colid=273JPDPIP3B2M&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Sakura Pigma Sensei Inking Set](https://www.amazon.com/dp/B001463RWW/?coliid=I2DSSINDWNL3WW&colid=273JPDPIP3B2M&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [My old man shoe insoles](https://www.amazon.com/dp/B01LCPQCYY/?coliid=I1O9LQ1CFL2RJG&colid=273JPDPIP3B2M&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
   
