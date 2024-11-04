@@ -13,7 +13,7 @@ Instead of using Amazon for my wishlist, here are some ideas.  Some of it is ava
 ## Art Stuff
 - 2 or 3 x [Strathmore 300 Series Mixed Media Paper Pads](https://www.amazon.com/dp/B007L6D8SM/?coliid=I1OZTSKODKITRI&colid=399HQA33U6DWR&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Pentel® Sharp™ Automatic Drafting Pencils, 0.9 mm, Black, Pack Of 2](https://www.amazon.com/gp/product/B002VKWSYI/ref=ppx_od_dt_b_asin_title_s01?ie=UTF8&psc=1)
-- [Pentel Refill Eraser for Mechanical Pencils]9https://www.amazon.com/Pentel-Refill-Mechanical-Pencils-Z2-1N/dp/B00LV88PW0?ref_=ast_sto_dp0
+- [Pentel Refill Eraser for Mechanical Pencils](https://www.amazon.com/Pentel-Refill-Mechanical-Pencils-Z2-1N/dp/B00LV88PW0?ref_=ast_sto_dp)
 
   
 ## Morse code tools (from cwmorse.us)
@@ -42,7 +42,7 @@ More stuff that has no use and only get it if you have absolutely no idea what t
 ## Stocking stuffer/Small gift ideas
  If you have no other ideas and you're desperate for a small gift, these are good but they're not things I ***have*** to have.
  
-- Mechanical Pencil Leads[https://www.amazon.com/Pentel%C2%AE-Super-Hi-Polymer%C2%AE-Leads-Tubes/dp/B011KGJG02?ref_=ast_sto_dp]
+- [Mechanical Pencil Leads](https://www.amazon.com/Pentel%C2%AE-Super-Hi-Polymer%C2%AE-Leads-Tubes/dp/B011KGJG02?ref_=ast_sto_dp)
 - [Olbas Inhaler](https://www.amazon.com/dp/B00014DMG4/?coliid=I2DJKAPUO9QMAS&colid=273JPDPIP3B2M&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Olbas Oil](https://www.amazon.com/dp/B07YQ1XM6J/?coliid=I1TYHZFUR8SBD4&colid=273JPDPIP3B2M&psc=0&ref_=list_c_wl_lv_ov_lig_dp_it)
 - [Nasol Nasal Spray](https://www.amazon.com/dp/B07CTCLHJJ/?coliid=I2IJ9SBNQCTQ0L&colid=273JPDPIP3B2M&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it)
