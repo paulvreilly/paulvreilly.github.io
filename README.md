@@ -28,6 +28,7 @@ I'd like to get into this with Matt and Jim:
 ## Stupid Stuff
 More stuff that has no use and only get it if you have absolutely no idea what to get for me.
 - [Redman Tobacco Tin Sign (from eBay)](https://www.ebay.com/itm/364023693973)
+- [The Legend Of Zelda: Echoes Of Wisdom for Nintendo Switch](https://www.amazon.com/dp/B0D8SDKKVW/?coliid=I39B264UVQTM4P&colid=399HQA33U6DWR&psc=1&ref_=list_c_wl_lv_ov_lig_dp_it) Maybe someday I'll grow up.
 
 ## Books
 - [Deliverance Prayers: For Use by the Laity (Faux Leather Edition please, I already have the paperback and want a sturdier version)](https://sentradpress.com/product/deliverance-prayers-for-use-by-the-laity/)
