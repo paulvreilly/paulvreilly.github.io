@@ -3,11 +3,12 @@
 Instead of using Amazon for my wishlist, here are some ideas.  Some of it is available on Amazon and some of it isn't.  The ***Last Updated*** date below is accurate but it doesn't mean someone hasn't bought something from the list below since then.  So if that's your concern, ask around.  But I don't mind handling any returns of course.
 
 ## Last Updated
-10/07/2024
+11/04/2024
 
 
 ## Misc
 - [Solo Stove Shield (for Bonfire size stove)](https://www.solostove.com/en-us/p/shield?sku=SSBON-SHIELD&queryID=0cbbe66af0ae8607fd9778b7d10d19a7) It's expensive but if you have no other ideas then this is good.
+- [2025 Kawase Hasui Art Calendar](https://www.amazon.com/Japanese-Calendar-2025-Collection-TD-737G/dp/B0D8159RVR/ref=sr_1_1?sr=8-1)
 
 ## Art Stuff
 - Drawing pads.  Top spiral bound are nice and I usually like something around 8 1/1 x 11 but it doesn't really matter.
